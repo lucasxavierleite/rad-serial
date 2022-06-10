@@ -7,4 +7,6 @@ Matheus Bermudes Viana - 11849797
 
 Luísa Balleroni Shimabucoro - 11832385
 
+Altair Fernando Pereira Junior - 9391831
+
 [Vídeo da apresentação](https://drive.google.com/file/d/1MjGpRyEyKqwzAF4bzN1HCfb70UVjH1B3/view?usp=sharing)
